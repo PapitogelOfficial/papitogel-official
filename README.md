@@ -12,4 +12,4 @@ Kami hadir dengan winrate tinggi, keamanan data terjamin, dan sistem fairplay ta
 - Bonus harian & cashback
 - Support 24/7 via live chat
 
-📢 Daftar sekarang di: https://papitogel.vip
+📢 Daftar sekarang di: https://papitogel.net
