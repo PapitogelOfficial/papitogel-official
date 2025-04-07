@@ -2,7 +2,7 @@
 
 Selamat datang di repo resmi Papitogel.
 
-🟢 Website: [https://papitogel.vip](https://papitogel.vip)
+🟢 Website: [https://papitogel.net](https://papitogel.net)
 
 Papitogel adalah situs togel online terpercaya di Indonesia.  
 Kami hadir dengan winrate tinggi, keamanan data terjamin, dan sistem fairplay tanpa manipulasi.
